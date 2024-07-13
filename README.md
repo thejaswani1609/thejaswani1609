@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi I'm Thejaswani 👋
 
 🎓 I studied Computer Science Engineering with a specialization in Big Data Analytics at SRM IST, KTR.
 
